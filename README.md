@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Mazen Mostafa Gohar
+- 👀 I’m interested in coding and developement
+- 📫 How to reach me: mazengohar10@gmail.com
+- ⚡ Fun fact: My favourite food is Sushi
